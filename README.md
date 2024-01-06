@@ -5,7 +5,7 @@
 ## 「照片」「李洪志」「多大本事啊，一个」「照片」「李洪志」「一挥手，全人类的病都不会存在。」
 ## 「要善」：「一定要善，才能解決問題，才能把那個人救了。」「善同样是真、善、忍构成的。」
 ----------------------------------------
-https://github.com/unlucky-legend0/story
-https://github.com/unlucky-legend0/bad_story_0000
-https://github.com/unlucky-legend0/bad_story_0001
+#### https://github.com/unlucky-legend0/story
+#### https://github.com/unlucky-legend0/bad_story_0000
+#### https://github.com/unlucky-legend0/bad_story_0001
 ----------------------------------------
