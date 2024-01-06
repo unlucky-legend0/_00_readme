@@ -7,7 +7,7 @@
 ## 「要善」：「一定要善，才能解決問題，才能把那個人救了。」「善同样是真、善、忍构成的。」
 ----------------------------------------
 #### 【https://github.com/cn-text/cn-text.github.io/	【https://cn-text.github.io/
-#### https://github.com/unlucky-legend0/story
+#### 【https://github.com/unlucky-legend0/story	【https://github.com/unlucky-legend0/story/blob/main/Mission_00.txt
 #### https://github.com/unlucky-legend0/bad_story_0000
 #### https://github.com/unlucky-legend0/bad_story_0001
 ----------------------------------------
